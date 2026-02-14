@@ -456,7 +456,7 @@ Ideas for contributions:
 📞 SUPPORT
 
 · Discord: On my description 
-· Email: mailto:Zhedder409
+· Email: mailto:Zhedder409@protonmail.com
 
 ---
 
